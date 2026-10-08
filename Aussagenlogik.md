@@ -7,4 +7,4 @@
 
 
 
-Der Apfel ist das beliebteste Obst in Deutschland und blickt auf eine jahrtausendealte Geschichte zurück. ~Aussagee
+Eine Aussage ist ein sprachliches Gebilde oder eine Behauptung, der man einen eindeutigen Wahrheitswert – das heißt entweder wahr oder falsch – zuordnen kann.
